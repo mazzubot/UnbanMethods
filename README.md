@@ -50,9 +50,9 @@ After login, the tool shows a welcome animation and voice message saying:
 
 ## 📲 Contact Me Crypto Lord:
 
-[💬 Message Me on WhatsApp](https://wa.me/2348033848356?text=HI%20CRYPO%20LORD%0APlease%20I%20will%20love%20to%20learn%20more%20about%20Coding.%20How%20can%20I%20start%3F)
+[💬 Message Me on WhatsApp](https://wa.me/2348084718594?text=HI%20CRYPO%20LORD%0APlease%20I%20will%20love%20to%20learn%20more%20about%20Coding.%20How%20can%20I%20start%3F)
 
-Telegram: https://t.me/Cryptolord_n
+Telegram: https://t.me/Cryptolordhimself2
 
 ## Disclaimer: 
 
